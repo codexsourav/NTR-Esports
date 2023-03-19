@@ -1,0 +1,1 @@
+<link rel="icon" type="image/x-icon" href="https://www.pngall.com/wp-content/uploads/3/PUBG-Helmet.png">
